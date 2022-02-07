@@ -5,6 +5,7 @@
 - 📫 How to reach me: via. 
 Insta: https://www.instagram.com/__droppedcroissant__/
 or Mail: 1.julcix.1@gmail.com
+Artstation: https://www.artstation.com/droppedcroissant
 
 <!---
 DroppedCroissant/DroppedCroissant is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
